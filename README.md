@@ -16,7 +16,7 @@
 6. The paper should still be folded in half for this step. We are simply going to rotate the paper. Rotate the paper so that your newly created crease is the closest edge to you (if you followed Step 5 exactly, you should be rotating counterclockwise by a quarter turn).
 7. To make one wing, fold the top edge of the paper down toward you, leaving about 1" at the bottom.
 8. Flip the paper over and repeat Step 7 to make the other wing.
-9. Test out the paper airplane
+9. Test out the paper airplane!
 
 Check your work [here](http://allfortheboys.com/home/2015/02/22/square-plane.html). 
 **Note:** Don't cheat! Only click link after your airplane is complete. This website will have some fancy modifications but don't worry about those.
